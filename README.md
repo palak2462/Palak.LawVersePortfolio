@@ -1,2 +1,0 @@
-
-# Palak.LawVersePortfolio
